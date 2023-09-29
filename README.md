@@ -33,3 +33,20 @@ Le **corbeau** avait fait un stock et cailloux et comptait bien défoncer cet en
 
 >>>>>>> 82975a4a2855da1f39ae6ce266251282044e8011
 
+
+
+Recherche sur le site
+Accueil > Espace Parents > Loisirs > 20 histoires drôles à raconter en famille
+NaissanceÉducationLoisirsPsychoSantéSociétéSécurité
+20 histoires drôles à raconter en famille
+Vous aimez les histoires drôles ? En voici quelques-unes, sélectionnées pour petits et grands. Faciles à raconter (et à comprendre), elles vont mettre une bonne ambiance lors de votre prochaine réunion de famille.
+
+
+Image de rire - Depositphotos
+Rire est très bon pour la santé, c’est bien connu. Voilà pourquoi vous trouverez sur Webjunior de nombreuses histoires drôles en ligne. Vous en avez déjà fait le tour ? Eh bien pas de souci, en voici de nouvelles pour rire de plus belle !
+
+1. La pétanque
+Un homme joue à la pétanque devant un asile de fous. Il lance une boule trop fort et celle-ci rentre dans l'établissement. Alors qu'il lui court après, les infirmiers l'arrêtent et lui demandent ce qu'il vient faire là. L'homme s’exclame :
+- Je suis ma boule, je suis ma boule !
+Il n'est jamais ressorti.
+
