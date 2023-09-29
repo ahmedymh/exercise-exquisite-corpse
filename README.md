@@ -15,3 +15,5 @@ Malheureusement au moment de ralass, *renard* ghosta **corbeaux** et fuit dans l
 ### Des années plus tard
 Corbeau n'avait pas **oublié** renard, il le traquait sans relâche depuis des *semaines*.
 Il était en manque, il tremblait, il voulait **tuer renard** d'avoir été un faux frère. 
+
+Il finit par arriver près d'une petite ferme où il y avait des poules. Le **corbeau** eu donc une idée. Sachant que le *renard* aime manger les poules, il allait se cacher pour lui faire une [embuscade](https://www.larousse.fr/dictionnaires/francais/embuscade/28702).
