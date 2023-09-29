@@ -11,3 +11,7 @@ Mais *renard* sa copine, etait shahtt egalement, et ce fut complique pour lui de
 Mais *renard* avait un plan, et il comptait bien faire participer **corbeau**, meme si c'est intention n'était pas aussi nobles que ce qu'il parraissait.   
 En effet, *renard* était devenu gérant du terrain, et grace aux ailes de **corbeaux** il parvint a écouler tout son stoc sans jamais faire de perte.  
 Malheureusement au moment de ralass, *renard* ghosta **corbeaux** et fuit dans les montagnes.  
+
+### Des années plus tard
+Corbeau n'avait pas **oublié** renard, il le traquait sans relâche depuis des *semaines*.
+Il était en manque, il tremblait, il voulait **tuer renard** d'avoir été un faux frère. 
